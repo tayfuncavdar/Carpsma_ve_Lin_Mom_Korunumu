@@ -1,0 +1,1 @@
+# Carpsma_ve_Lin_Mom_Korunumu
